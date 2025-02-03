@@ -1,4 +1,4 @@
-# Viagem no Tempo: A Enciclopédia Nostálgica dos Games ️
+# Viagem no Tempo: A Evolução dos Jogos
 
 ️ Já se perguntou como eram os jogos da sua infância? Ou quais consoles dominaram a década de 90? 
 Então, prepare-se para embarcar na nossa **Viagem no Tempo** e reviver a história dos videogames! 
